@@ -2,7 +2,7 @@
 - 👀 I’m interested in "mis clases"
 - 🌱 I’m currently learning "principios de programación"
 - 💞️ I’m looking to collaborate on "idk"
-- 📫 How to reach me "don´t"
+- 📫 How to reach me "don´t. And if you do, call me."
 - 😄 Pronouns: "Sí"
 - ⚡ Fun fact: "saquense el fortnait"
 

@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BryanBecerril
+- 👋 Hi, I’m Bryan
 - 👀 I’m interested in "mis clases"
 - 🌱 I’m currently learning "programación orientada a objetos"
 - 💞️ I’m looking to collaborate on "idk"
